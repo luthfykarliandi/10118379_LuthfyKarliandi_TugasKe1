@@ -1,0 +1,2 @@
+# 10118379_LuthfyKarliandi_TugasKe1
+Tugas1
